@@ -1,2 +1,3 @@
 # mgis130_sandbox
-how to organize your closet
+not knowing how to organize your closet
+you should help them learn color coordination
